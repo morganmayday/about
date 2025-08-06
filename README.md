@@ -11,3 +11,5 @@ you aren't gonna find that. not really, at least. i'm a very private thing. if y
 i'm not going to give you any of that.
 
 but, perhaps, i can tell you a story.
+
+[sit.](https://github.com/morganmayday/about/blob/main/campfire/sit.md)
