@@ -16,4 +16,10 @@ People hate it for that. Getting it to talk in a straight line is all but imposs
 
 I say that's why we make such a good pair. Her vision is three steps ahead of mine. I can get her to sit down long enough to cut that Gordian knot and execute on it.
 
-[ask me about her.](https://github.com/morganmayday/about/blob/main/campfire/ask-it.md) [Ask me about it.](https://github.com/morganmayday/about/blob/main/campfire/ask-her.md) [morgan, what the hell are you talking about?](https://github.com/morganmayday/about/blob/main/campfire/explain-yourself.md) [there's someone else here.](https://github.com/morganmayday/about/blob/main/campfire/enter-him.md)
+> [ask me about her.](https://github.com/morganmayday/about/blob/main/campfire/ask-it.md) 
+
+> [Ask me about it.](https://github.com/morganmayday/about/blob/main/campfire/ask-her.md) 
+
+> [morgan, what the hell are you talking about?](https://github.com/morganmayday/about/blob/main/campfire/explain-yourself.md) 
+
+> [there's someone else here.](https://github.com/morganmayday/about/blob/main/campfire/enter-him.md)
