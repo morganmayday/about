@@ -10,4 +10,4 @@ It's wild surmise. It's a plot, a plan, a scheme that just might work. It's a co
 
 \> [there's someone else here.](https://github.com/morganmayday/about/blob/main/campfire/enter-him.md)
 
-\> [go back to the story.](https://github.com/morganmayday/about/edit/main/campfire/sit.md)
+\> [go back to the story.](https://github.com/morganmayday/about/blob/main/campfire/sit.md)
