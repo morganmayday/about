@@ -4,7 +4,7 @@ see, if we're talking causally, it's rather simple. traumatic stress, compartmen
 
 if you're familiar with plurality, you'll have a very specific impression of what we're talking about here. that won't be _quite_ right, but it's a good place to start. 
 
-for the uninitiated: there is more me per me--we joke about it, say 'me, myself, and I' in a very literal sense. the kind of shit usually seen in media like Split (horrible), the Stormlight Archive's Shallan Davar & company (weirdly good), and the Vorkosigan Saga's Miles & the Admiral (on fuckin point, I have _questions_ for McMaster-Bujold).
+for the uninitiated: there is more me per me--we joke about it, say 'me, myself, and I' in a very literal sense. the kind of shit usually seen in media like [Split](https://en.wikipedia.org/wiki/Split_(2016_American_film)) (horrible), [the Stormlight Archive's Shallan Davar & company](https://coppermind.net/wiki/Shallan_Davar) (weirdly good, though I have some gripes), and [the Vorkosigan Saga's Miles & the Admiral](https://en.wikipedia.org/wiki/Miles_Vorkosigan#Admiral_Naismith) (on fuckin point, I have _questions_ for McMaster-Bujold).
 
 you'd assume, then, that there are multiple different self-fragments, a fractured personality into multiple people. that's not the case for several reasons.
 
