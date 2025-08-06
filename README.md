@@ -12,4 +12,4 @@ i'm not going to give you any of that.
 
 but, perhaps, i can tell you a story.
 
-[sit.](https://github.com/morganmayday/about/blob/main/campfire/sit.md)
+[sit by the fire. let me begin.](https://github.com/morganmayday/about/blob/main/campfire/sit.md)
