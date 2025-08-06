@@ -13,3 +13,11 @@ one: we're not people.
 two: that's the case for everyone, if you get atomic enough.
 
 three: it's like calling a square a rectangle. that's not wrong, but you aren't getting the whole picture.
+
+\> ["we're not people" sounds kinda concerning](https://github.com/morganmayday/about/blob/main/campfire/personhood.md)
+
+\> [what do you mean, atomic enough?](https://github.com/morganmayday/about/blob/main/campfire/atomic-self.md)
+
+\> [then paint me a picture.](https://github.com/morganmayday/about/blob/main/campfire/squares.md)
+
+\> [let's talk about something else.](https://github.com/morganmayday/about/blob/main/campfire/sit.md)
