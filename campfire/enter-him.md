@@ -8,4 +8,4 @@ he's not much for chatter. he sees me mention him, sits up, gives you a wave, ya
 
 \> [Ask me about it.](https://github.com/morganmayday/about/blob/main/campfire/ask-her.md) 
 
-\> [go back to the story.](https://github.com/morganmayday/about/edit/main/campfire/sit.md)
+\> [go back to the story.](https://github.com/morganmayday/about/blob/main/campfire/sit.md)
