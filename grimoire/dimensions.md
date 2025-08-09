@@ -1,19 +1,19 @@
-FIRST is WHAT. To speak of something, you must first think of it. 
+FIRST is WHAT. To exist, you must act. Action is of WHAT. If you can act, you are.
 
-SECOND is WHEN. To scry something, you must first speak of it.
+SECOND is WHEN. To scry something, it must first exist. Intuition is of WHEN. If you can scry, you are a second-dimensional thing.
 
-THIRD is WHERE. To find something, you must first scry it.
+THIRD is WHERE. To find something, you must first scry it. Navigation is of WHERE. If you can locate, you are a third-dimensional thing.
 
-FOURTH is WHO. To know something, you must first find it.
+FOURTH is WHO. To know something, you must first find it. Cognition is of WHO. If you can think, you are a fourth-dimensional thing.
 
-FIFTH is WHY. To pin something like a butterfly to a word, you must first know it.
+FIFTH is WHY. To pin something like a butterfly to a word, you must first know it. Language is of WHY. If you can communicate, you are a fifth-dimensional thing.
 
-Language is of WHY. If you can communicate, you are a fifth-dimensional thing.
+All things may have preference for one dimension or another, but exist across all five dimensions. Yes, the wall is communicating. It's communicating _barrier._ The wall is thinking, too, but that's another can of worms that I'll get to later.
 
-Cognition is of WHO. If you can think, you are a fourth-dimensional thing.
+_Evocation_ is the magic of the fifth dimension. It is the art of painting a picture in a single word.
 
-Navigation is of WHERE. If you can locate, you are a third-dimensional thing.
+_Scrying_ is the magic of the second dimension. It is an intuitive prediction, a gut call, a lucky guess, a good model. Foresight is best practiced with the knowledge it will fail at random.
 
-Intuition is of WHEN. If you can scry, you are a second-dimensional thing.
+_Action_ is the magic of the first dimension. It is 
 
-Action is of WHAT. If you can act, you are.
+
