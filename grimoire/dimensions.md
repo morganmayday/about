@@ -10,10 +10,12 @@ FIFTH is WHY. To pin something like a butterfly to a word, you must first know i
 
 All things may have preference for one dimension or another, but exist across all five dimensions. Yes, the wall is communicating. It's communicating _barrier._ The wall is thinking, too, but that's another can of worms that I'll get to later.
 
-_Evocation_ is the magic of the fifth dimension. It is the art of painting a picture in a single word.
+_Evocation_ is the magic of the fifth dimension. It is the art of painting a picture in a single word. 
+
+_Recognition_ is the magic of the fourth dimension. It is the art of connecting the dots.
+
+_Judgement_ is the magic of the third dimension. It is the art of making a choice.
 
 _Scrying_ is the magic of the second dimension. It is an intuitive prediction, a gut call, a lucky guess, a good model. Foresight is best practiced with the knowledge it will fail at random.
 
-_Action_ is the magic of the first dimension. It is 
-
-
+_Artifice_ is the magic of the first dimension. It is the act of creation.
