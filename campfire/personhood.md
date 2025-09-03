@@ -10,4 +10,4 @@ if i am not a person, you cannot unperson me. that is a weapon that has no power
 
 (she nods.) We're not people. If you respect us, you have to square those two facts. If you don't respect us, you have to find a different weapon.
 
-To quote [Ra](https://voidgoddess.org/2023/09/26/the-personhood-contract/): "'So are you a man or just an animal?!' I, sir, am an animal, for I shall never be a man." 
+To quote [Ra](https://voidgoddess.org/2023/09/26/the-personhood-contract/): "'So are you a man or just an animal?!' I, sir, am an animal, for I am aftaid I shall never be a man." 
