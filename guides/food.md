@@ -7,8 +7,11 @@ Get a sheet of paper or two and a pencil, or a word document open.
 
 ### 1: Identify
 Make three bullet point lists. 
+
   1: What food can I, when it's cooked for me, almost always eat comfortably?
+  
   2: What food can I cook, with a minimum of prep time and effort?
+  
   3: What "snacks" can I eat mindlessly?
 
 ### 2: Plan
@@ -32,22 +35,38 @@ Keep that mindless snack by your day-to-day setup. If you go out and do things, 
 Finding a meal that you _enjoy_ the process of making isn't necessary to eating enough, but it is a very healing experience. If you don't know how to cook, try my grilled cheese recipe. Good starters tend to be simple recipes with very few ingredients or prep stages, with food you can eat the moment it's done, with very little cook time--for example, my grilled cheese takes about 5 minutes of setup, 7 minutes to cook, 1 minute to clean up, and can be eaten right off the pan if you don't mind burning your tongue a little.
 
 > Sidebar: Grilled Cheese Recipe 2025
+> 
 > you can also do this with a pb&j btw ive been doing that ever since i ended the multidecade abusive relationship with cheese
+> 
 > Total cook time 15min
 >
+> 
 > 3 cheeses--I use a slice of colby jack, a slice of cheddar, and a sprinkling of parmesan.
+> 
 > Butter--I use Imperial buttery spread, about a third of a stick for a full sandwich
+> 
 > Bread--this is for two slices, I use specifically Waterfront Sourdough. Good sourdough is best
+> 
 > Spices--to taste. I recommend a clove of garlic, fresh crushed, some parsley, some oregano, some lemon pepper, and some salt.
+> 
 > A source of heat or sweet, depending on taste--not necessary, but nice. Crushed red pepper is good. A tiny tiny bit of honey or mustard spread on the inside of the bread also fucks if you're into that.
+>
 > 
 > A saucepan, a knife, a stove, and a spatula/tongs/flipping implement
+>
 > 
 > 1: Stove on 3 (medium low heat), saucepan on stove. Cut the butter you're using into slices or chunks or whatever for faster melt, or don't I'm not your dad, then put in pan.
+> 
 > 2: While butter melting, array the bread and cheeses as desired on it. Close the sandwich when finished.
+> 
 > 3: Put spices in pan, swirl around with spatula for a minute or two in the butter. Usually I do this before butter's totally melted, makes total time lower.
+> 
 > 4: Remove garlic or any other chunky spices from pan.
+> 
 > 5: Dip the side of the sandwich that will be face up in the sauce, then close the sandwich again and put it other-side-down in pan.
+> 
 > 6: Up heat slightly (I do to 4), then set a four-minute timer. Leave to cook.
-> 7: Flip at 4 minutes, then set 3 minute timer. 
+> 
+> 7: Flip at 4 minutes, then set 3 minute timer.
+> 
 > 8: Serve hot and enjoy.
