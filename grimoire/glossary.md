@@ -9,7 +9,7 @@ Artifice: One of the Arts. Associated with the first dimension, WHAT. The practi
 
 Arts, the: Let's call them _magic._ 
 
-Cognitive firmware: Self-agents believed necessary to the function of cognitive software running on one's cognitive hardware.
+Cognitive firmware: Self-agents believed necessary to the function of cognitive software running on one's cognitive hardware. To cognitive hardware as cognitive software is to You.
 
 Cognitive hardware: The brain.
 
